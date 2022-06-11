@@ -6,8 +6,7 @@
 - 🌱 I’m currently learning how to talk with a T G-R
  ...
 - 💞️ I’m looking to collaborate with T G-R
-- 📫 How to reach me by email:yuliya2008@hotmail.com
-
+- 📫 How to reach me by email:yuliya2008
 <!---
 Yuliyalee/Yuliyalee is a ✨ special ✨ repository because 
 its `README.md` (this file) appears on your GitHub profile.
