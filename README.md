@@ -1,14 +1,28 @@
 From Li-You 
-message for  Te-Bai
+message for  Te-bai
 
-Ibis Brussel city center 
- July21-22 2022 
-Room704
+u are a coward. irresponsible ,
+ timid , selfish ,cruel coward. 
 
-Tebai
-come to see me. please. 
-I do not think I will have 
-another chance to visit here anymore. 
-so I see it as last chance. 
+u were in 2004-2006 , in 2008 , 
+in2022... 
 
-it is not threats ... it is just a feeling. 
+u are forever a coward living 
+in your own body . 
+
+the bunny means u are a timid coward. 
+
+u do not see any good boxing of my coming
+
+because I am coming to find out u were
+ pathetic and perthetic... 
+
+goodbye.forever 
+
+u go away from my heart forever. u do not 
+deserve anything from me 
+
+u were just a broken dream of mine. 
+
+welcome back to my sense again! 
+
