@@ -1,16 +1,17 @@
-From Li-You 
-message for  Te-bai
+From Yuliya Li
+to  Tobias Geerinckx-Rice
 
 u are a coward. irresponsible ,
- timid , selfish ,cruel coward. 
+ timid , selfish ,and cruel coward. 
 
-u were in 2004-2006 , in 2008 , 
+u were in 2004-2006 , in 2008 , 2014,2016,
 in2022... 
 
 u are forever a coward living 
 in your own body . 
 
 the bunny means u are a timid coward. 
+nothing else to me.
 
 u do not see any good boding of my coming
 
