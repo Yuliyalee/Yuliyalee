@@ -12,7 +12,7 @@ in your own body .
 
 the bunny means u are a timid coward. 
 
-u do not see any good boxing of my coming
+u do not see any good boding of my coming
 
 because I am coming to find out u were
  pathetic and perthetic... 
