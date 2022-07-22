@@ -1,6 +1,5 @@
 
-From Yuliya Li
-to  Tobias Geerinckx-Rice
+to  T G-R
 official good bye letter 
 
 u are a coward. irresponsible ,
@@ -66,3 +65,13 @@ not when I see the truth any more.
 
 go away from my heart!
 goodbye!
+
+
+thanks for coming up my mind this half year. 
+it brought real happiness for me behind. 
+some others realized they love me 
+and I am good. 
+
+you are worth here.
+ to make my life happier. 
+thank u and bye. 
